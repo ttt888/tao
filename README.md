@@ -2,6 +2,16 @@
 ### [cc69.co](http://cc69.co/)
 ### [u69.co](http://u69.co/)
 ### [r69.co](http://r69.co/)
+### [av2.fit](http://av2.fit/)
+
+### [av3.fit](http://av3.fit/)
+### [av4.fit](http://av4.fit/)
+### [av5.fit](http://av5.fit/)
+### [av6.fit](http://av6.fit/)
+### [av7.fit](http://av7.fit/)
+### [av8.xyz](http://av8.xyz/)
+### [av9.fit](http://av9.fit/)
+
 ### [xx2.ren](http://xx2.ren/)
 ### [xx3.ren](http://xx3.ren/)
 ### [xx4.ren](http://xx4.ren/)
