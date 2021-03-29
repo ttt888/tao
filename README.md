@@ -2,22 +2,24 @@
 ### [cc69.co](http://cc69.co/)
 ### [u69.co](http://u69.co/)
 ### [r69.co](http://r69.co/)
-### [av2.fit](http://av2.fit/)
+### [ssvs.cc](http://ssvs.cc/)
 
-### [av3.fit](http://av3.fit/)
-### [av4.fit](http://av4.fit/)
-### [av5.fit](http://av5.fit/)
-### [av6.fit](http://av6.fit/)
-### [av7.fit](http://av7.fit/)
-### [av8.xyz](http://av8.xyz/)
-### [av9.fit](http://av9.fit/)
+### [tt3.ren](http://tt3.ren/)
+### [tt4.ren](http://tt4.ren/)
+### [tt5.ren](http://tt5.ren/)
+### [tt6.ren](http://tt6.ren/)
+### [tt7.ren](http://tt7.ren/)
+### [tt8.ren](http://tt8.ren/)
+### [tt9.ren](http://tt9.ren/)
 
-### [xx2.ren](http://xx2.ren/)
-### [xx3.ren](http://xx3.ren/)
-### [xx4.ren](http://xx4.ren/)
-### [xx5.ren](http://xx5.ren/)
-### [xx6.ren](http://xx6.ren/)
-### [xx7.ren](http://xx7.ren/)<br>
+### [tt4.xyz](http://tt4.xyz/)
+### [tt7.xyz](http://tt7.xyz/)
+### [tv3.ren](http://tv3.ren/)
+### [tv5.ren](http://tv5.ren/)
+### [tv6.ren](http://tv6.ren/)
+### [tv7.ren](http://tv7.ren/)
+### [tv8.ren](http://tv8.ren/)
+### [tv9.ren](http://tv9.ren/)<br>
 备用下载地址如下<br>
 taoapp1.com<br>
 <br>
